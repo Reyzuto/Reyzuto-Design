@@ -7,4 +7,5 @@ If you want to see the results, just click the link below.
 
 ## Design Result
 
--   GFX: [GFX Design](https://drive.google.com/drive/folders/140_ulsEuVCeunBSGIK9QFWRIuQYm8ifv)
+-   GFX EDIT: [CHECK](https://drive.google.com/drive/folders/140_ulsEuVCeunBSGIK9QFWRIuQYm8ifv)
+-   CODM INSPECT WEAPON EDIT: [CHECK](https://drive.google.com/drive/folders/140_ulsEuVCeunBSGIK9QFWRIuQYm8ifv)
