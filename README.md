@@ -8,4 +8,4 @@ If you want to see the results, just click the link below.
 ## Design Result
 
 -   GFX EDIT: [CHECK](https://drive.google.com/drive/folders/140_ulsEuVCeunBSGIK9QFWRIuQYm8ifv)
--   CODM INSPECT WEAPON EDIT: [CHECK](https://drive.google.com/drive/folders/140_ulsEuVCeunBSGIK9QFWRIuQYm8ifv)
+-   CODM INSPECT WEAPON EDIT: [CHECK](https://drive.google.com/drive/folders/176Iz0ep27KoG_NwBSaCkVF34rDoD-dNO)
