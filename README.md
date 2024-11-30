@@ -1,4 +1,4 @@
-![Banner](assets/)
+![Banner](assets/banner.png)
 
 ## About the Design
 
